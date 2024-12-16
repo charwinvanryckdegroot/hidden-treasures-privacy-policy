@@ -1,5 +1,3 @@
-Below is a generic privacy policy description you can tailor to your specific app and data handling practices. Make sure to review and adjust it as needed to accurately reflect what your app does.
-
 Privacy Policy for Hidden Treasures Collectibles & Antiques
 
 At Hidden Treasures Collectibles & Antiques, we value and respect your privacy. This Privacy Policy outlines how we collect, use, disclose, and safeguard your personal information when you use our application.
